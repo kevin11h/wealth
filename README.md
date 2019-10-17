@@ -7,3 +7,5 @@
 https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=wealth
 
 # Asian Wealth Guide - Guide to a Golden Millenium
+
+## https://github.com/kevin11h/Prophets-of-Peace/
