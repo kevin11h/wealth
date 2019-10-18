@@ -15,19 +15,34 @@ https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=wealth
 
 Create your own Currency
 
-# Principality: The Rich Invent Money
+# 1st Principality: Money is a wonderful servant, but a horrible Slave (Parable of the Shrewd Steward + Unfair Manager - Ref. Luke 16)
+# 2nd Principality: The Rich Invent Money
 
-# Communications 1. Informational Production
+# Communicational
+## 1. Informational Production
 1. Book Writing Publications - New Paper Currency
 2. Ideas as currency
 3. Videos / Film / CDs
 
-# Communications 2. Natural Biological Ability
+# Communicational
+## 2. Natural Biological Ability
 1. Languages as currency - Multilinguilism
+2. Health & Nutrition &  Diet & Vitamins & Minerals - Regimen
 
-# Educatioonal 
+# Educational 
 1. Videos / CDs programs
 2. Online course works
+3.  Free Video Streams - course of knowledge packets arriving in gems of truth (School of Youtube)
+
+# Experiential (Historical)
+1.  Reality **Check** - Record of your own learning - An active and living akashik record of your learning journey
+2.  **Note**book - Diary - Journal Experience Keeping, Historical and Time-transcendent truths
+
+# Psychological
+## Image & Media Manipulation
+1.  Perception Management
+2.  Packaging & Marketing
+3.  Public Relations
 
 # Intellectual Property
 1.  Personal Stock (IPO via startup)
@@ -48,6 +63,6 @@ Create your own Currency
 1.  Cryptocurrency / blockchain / bitcoin / Coinage
 
 # Transcendental
-1.  Artwork - Songs, Praise, Creative Works
-2.  Wisdom - Scripture, Experiential
+1.  Artwork - Songs, Poems, Praise, Creative Works
+2.  Wisdom - Scripture, Time-transcendant truths
 3.  :]
