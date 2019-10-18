@@ -19,15 +19,23 @@ Create your own Currency
 # 2nd Principality: The Rich Invent Money
 
 # Communicational
-## 1. Informational Production
+## Communication as Currency
+### 1. Informational Production
 1. Book Writing Publications - New Paper Currency
 2. Ideas as currency
 3. Videos / Film / CDs
+4. Tickets, Title & Terms - Activity live-Access charges, Terms of 
 
 # Communicational
-## 2. Natural Biological Ability
+## Communication as Currency
+### 2. Natural Biological Ability
 1. Languages as currency - Multilinguilism
 2. Health & Nutrition &  Diet & Vitamins & Minerals - Regimen
+
+# Identity
+1. Tickets & Titles of ownership
+2. Membership cards, Access cards, Passports
+3. Passport Wallet
 
 # Educational 
 1. Videos / CDs programs
@@ -37,6 +45,8 @@ Create your own Currency
 # Experiential (Historical)
 1.  Reality **Check** - Record of your own learning - An active and living akashik record of your learning journey
 2.  **Note**book - Diary - Journal Experience Keeping, Historical and Time-transcendent truths
+3.  Access Charge:  Parties / Live Events / Groups Club memberships / Tickets-based businesses
+  i. Activity - box offices Eventbrite Tickets & Title - Eventuality 
 
 # Psychological
 ## Image & Media Manipulation
@@ -54,6 +64,7 @@ Create your own Currency
 1. Exchange systems - controlled markets
 2. Admissions - Ticket & ID card access business #accessibility
   i. Eventbrite
+3. Tickets, Titles & Terms-based businesses
   
 # Cash Flowing Assets Productions
 1.  
