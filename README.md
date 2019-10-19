@@ -14,6 +14,7 @@ https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=wealth
 Create your own Currency
 
 ## 1st Principality: Money is a wonderful servant, but a horrible Slave (Parable of the Shrewd Steward + Unfair Manager - Ref. Luke 16)
+### The rich don't work for money.  Work for Wisdom
 ## 2nd Principality: The Rich Invent Money
 
 ## Communicational
