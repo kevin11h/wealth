@@ -86,3 +86,7 @@ Create your own Currency
 1.  Artwork - Songs, Poems, Praise, Creative Works
 2.  Wisdom - Scripture, Time-transcendant truths
 3.  :]
+
+## Health and Humor
+### "Funny" Money (Creative)
+https://itsamoneything.com/money/make-money-online-the-truth/#.Xa4k0JJKjX4
