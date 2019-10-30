@@ -28,6 +28,7 @@ Create your own Currency
 ## Communicational
 ### Communication as Currency
 #### 2. Natural Biological Ability
+##### Nutritional
 1. Languages as currency - Multilinguilism
 2. Health & Nutrition &  Diet & Vitamins & Minerals - Regimen
 
