@@ -53,6 +53,7 @@ Create your own Currency
 2.  Packaging & Marketing
 3.  Public Relations
 4.  Affiliate Ads Networking
+5.  Social Media Management Team & Social Networking PR public relations agency
 
 ## Personal
 1.  Health
@@ -71,7 +72,8 @@ Create your own Currency
 2. Admissions - Ticket & ID card access business #accessibility
   i. Eventbrite
 3. Tickets, Titles & Terms-based businesses
-  
+
+
 ## Cash Flowing Assets Productions
 1.  
 2.  
