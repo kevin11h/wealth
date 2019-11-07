@@ -89,8 +89,9 @@ Create your own Currency
 1.  Artwork - Songs, Poems, Praise, Creative Works
 2.  Wisdom - Scripture, Time-transcendant truths
 3.  :]
-4.  Miracle - Coin in Fish Mouth Peter No Tax Exemption
-5.  Holy Property - Christian Body is God's Property, Holy Spirit's Temple = Tax Exemption
+4.  Miracle I - Coin in Fish Mouth Peter No Tax Exemption https://en.wikipedia.org/wiki/Coin_in_the_fish%27s_mouth
+5.  Holy Property - Christian Body is God's Property, Holy Spirit's Temple = Tax Exemption 
+6.  Miracle II - Mana UBI Universal Basic Food Manna https://en.wikipedia.org/wiki/Manna 
 
 ## Health and Humor
 ### "Funny" Money (Creative)
