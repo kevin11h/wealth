@@ -96,3 +96,6 @@ Create your own Currency
 ## Health and Humor
 ### "Funny" Money (Creative)
 https://itsamoneything.com/money/make-money-online-the-truth/#.Xa4k0JJKjX4
+
+## Creative
+https://github.com/kevin11h/How-to-invent-money-
