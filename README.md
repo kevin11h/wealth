@@ -1,3 +1,6 @@
+# http://www.aboutjohnlee.com/
+## https://www.youtube.com/watch?v=MJmcUmbSV_o
+
 # Asian Wealth Guide - Guide to a Golden Millenium
 
 2 sages of S*
