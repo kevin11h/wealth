@@ -109,3 +109,25 @@ https://itsamoneything.com/money/make-money-online-the-truth/#.Xa4k0JJKjX4
 
 ## Creative
 https://github.com/kevin11h/How-to-invent-money-
+
+
+
+
+
+
+# https://www.reddit.com/r/financialindependence/comments/68a6dg/im_that_multimillionaire_app_developer_who/
+
+I'm that multi-millionaire app developer who explained what it's like being rich. AMA.
+Hi, I'm Allen Wong. I was told to create an AMA here after my comment about what it's like being rich shot to the top of the BestOf subreddit.
+My upbringing: My parents were raised in the slums. My mother worked in a sweatshop in NYC. And my father passed away unnaturally three months after I graduated from college.
+How I got started: After my father's passing, my mother suffered from a five-year-long psychotic episode. So I moved back to NYC from LA to take care of her. Since I was the only one in the family with a job due to the recession, I self-taught myself how to create apps during weekends and weeknights in hopes of making some side income. What I didn't expect was that this hobby ended up making much more than my full time job.
+How the business is going: A few of my apps have topped the charts. Most recently, my Remote S for Tesla app became the #1 Lifestyle app and about 10-20% of Tesla owners have it. My most successful app, "5-0 Radio Police Scanner", is currently the #1 News app and has been and still is one of top downloaded apps since its creation in 2009. My second most successful app, Police Scanner+, was an app I created just to compete against myself so that I could hog up all the top search results for the keywords "Police Scanner" in the App Store.
+What I do these days: Mostly traveling the world, dating, having fun with friends, and finding ways to help out the community. I have funded other people's kids' college funds, given people rides in my Lamborghini for charity, tipped people much more than what I was paying for, custom built an Iron Man suit to cheer up kids at hospitals, helped get clean water to villages that before didn't have access to it, and etc.
+My gift to Redditors: I made one of my paid apps free for this AMA.
+Advice on app development: Since I often get asked for advice, I gave speeches at different universities about how to get started on apps or how to make apps successful:
+Speech 1 given at Valencia
+Q&A for Speech 1 (starts at 45:54)
+Speech 2 given at Harvard
+My Proof: My Facebook
+I will attempt to answer as many questions as possible no matter how ridiculous or random. Let's have some fun! AMA!
+Final Edit: Thanks for doing the AMA with me! I had a lot fun. For those interested in learning more about my work ethic and marketing strategies, my book, Lifehacked, is available on Amazon, or eBook format with a discount for Redditors. Here are links to my first AMA from 2013, second AMA from 2015, and third AMA from 2017.
