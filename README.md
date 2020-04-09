@@ -3,6 +3,13 @@
 
 # Asian Wealth Guide - Guide to a Golden Millenium
 
+
+https://www.reddit.com/r/financialindependence/comments/68a6dg/im_that_multimillionaire_app_developer_who/
+
+https://www.youtube.com/watch?v=ZEW_dq_5XxI&feature=youtu.be
+
+https://www.reddit.com/r/financialindependence/comments/68a6dg/im_that_multimillionaire_app_developer_who/
+
 2 sages of S*
 
 3 wealthy wise men
